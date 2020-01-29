@@ -1,4 +1,4 @@
-My top 5 recent books U+1F4DA
+My top 5 recent books
 * *The Green Mile*, Stephen King
 * *An American Marriage*, Tayari Jones
 * *Educated*, Tara Westover
